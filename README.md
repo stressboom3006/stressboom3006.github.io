@@ -1,1 +1,1 @@
-# stressboom3006.github.xyz
+# stressboom3006.github.io
